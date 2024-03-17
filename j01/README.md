@@ -1,4 +1,4 @@
-# PlayStation 4 Confusion
+# Circling to Sign-in
 I was given my little brother's PlayStation 4 when he upgraded and got a new one. I use it to watch netflix or other streaming services or play some games. The PlayStation 4 is very similar to the PlayStation 3 as I have used that often. 
 
 The dash boards, or place you can choose what app to use or where to go, both have similar layouts and I thought they would be used pretty much the same. Here is a side by side of them.
